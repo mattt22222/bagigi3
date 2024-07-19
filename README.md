@@ -23,3 +23,4 @@ maremmaaaa
 tevainfiga
 peccato è andata male
 mannaggia
+amazing
