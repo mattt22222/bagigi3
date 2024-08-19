@@ -22,7 +22,7 @@ ayeyebrazorf
 maremmaaaa
 tevainfiga
 peccato è andata male
-mannaggia
+mannaggia sampei
 amazing
 bomber
 dasfff
