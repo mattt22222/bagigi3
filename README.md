@@ -9,19 +9,7 @@ weash
 it's a wonderful night
 summer time
 ddfd
-what?
-mommammamia
-grande
-amazingasdfafasf
-!32r2qr
-treasutry
-wonderous
-amazing
-agagagga
-ayeyebrazorf
-maremmaaaa
-tevainfiga
-peccato è andata male
+sapel
 mannaggia sampei
 amazing
 bomber
