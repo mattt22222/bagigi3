@@ -14,7 +14,7 @@ mannaggia sampei
 amazingafafasdf
 bomber
 dasfff
-amaster
+amasterfadfa
 trumpest
 fadfadff
 it's a shame
